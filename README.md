@@ -1,1 +1,1 @@
-# myrep2
+# LINK https://goo.su/setup2024
